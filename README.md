@@ -2,7 +2,7 @@
 - 👀 Nassınız
 - 🌱 Allah iyilik versin bende iyiyim
 - 💞️ Seviliyosunuz
-- 📫 Ok
+- 📫 By by
 
 <!---
 muhammed76ali/muhammed76ali is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
